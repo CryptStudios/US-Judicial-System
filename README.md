@@ -8,4 +8,4 @@ United States Government Roleplay
 
 ---
 
-- [Discord invite](https://discord.gg/FmEEFEJWeC)
+- [Discord invite](https://discord.gg/USGR)
